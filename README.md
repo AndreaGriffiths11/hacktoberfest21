@@ -8,4 +8,4 @@ In this repo you will find a table to add your user name and also the location g
 
 #### Thanks again for making this community great!!
 
-
+#### A good initiative to showcase your talent through a small contribution.
